@@ -12,7 +12,7 @@ Nama Athour : [**Mr.Risky**](https://github.com/Dumai-991)
 ```
 Thanks to :
 Zee K World* <=> Mr.Risky*
-Wans X Gans* <=> Mr.Jeeck*
+Wans X Gans* <=> Mr.Asep*
 ```
 >
 1. Via WhatsApp : [**WhatsApp**](https://wa.me/6283143565470)
